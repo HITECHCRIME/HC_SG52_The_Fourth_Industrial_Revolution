@@ -9,7 +9,7 @@ not only the passive systems
 
 never disconnected
 part of your presence
-5G network spreading
+5G network spreading (systems)
 
 nanosensor data
 synthetic aura
