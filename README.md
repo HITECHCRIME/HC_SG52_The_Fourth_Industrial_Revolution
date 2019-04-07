@@ -18,7 +18,7 @@ global brain from mobile
 synthetic voices 
 silent at first
 then spreading and self updating
-thought algorythm 
+thought algorithm 
 true symbiotic relation
 tattoo swiped 
 autonomous 
