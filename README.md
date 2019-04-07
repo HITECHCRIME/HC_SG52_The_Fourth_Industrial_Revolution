@@ -9,7 +9,7 @@ not only the passive systems
 
 never disconnected
 part of your presence
-5G network spreading (systems)
+5G network systems (spreading)
 
 nanosensor data
 synthetic aura
@@ -17,13 +17,18 @@ global brain from mobile
 
 synthetic voices 
 silent at first
-then spreading self updating
-tattoo swiped for authentication
-autonomous thoooought algorythm 
-for true symbiotic relations (AI symbiote) 
+then spreading and self updating
+thought algorythm 
+true symbiotic relation
+tattoo swiped 
+autonomous 
+authentication
+(AI symbiote) 
 
 lose yourself in the merge
 lose yourself in the merge
+lose yourself 
+in the emerging picture
 impatient
 
 maze of your own making
