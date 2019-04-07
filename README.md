@@ -18,6 +18,7 @@ synthetic voices, silent at first
 then spreading and self updating
 as such is thought algorithm 
 true symbiotic relation
+
 tattoo swiped, autonomous 
 authentication (AI symbiote) 
 lose yourself in the merge
