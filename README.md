@@ -15,13 +15,12 @@ nanosensor data
 synthetic aura
 global brain from mobile
 
-
-silent voices first
-self updating
+synthetic voices 
+silent at first
+then spreading self updating
 tattoo swiped for authentication
-
-autonomous thoooought
-algorythm for symbiotic relations (AI symbiote)
+autonomous thoooought algorythm 
+for true symbiotic relations (AI symbiote) 
 
 lose yourself in the merge
 lose yourself in the merge
