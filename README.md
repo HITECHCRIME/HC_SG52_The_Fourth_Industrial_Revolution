@@ -31,7 +31,7 @@ maze of your own making
 siren storage, pattern recognition
 chains of our psyche
 out of moves, out of the framework
-activity window be nonexistent
+activity window nonexistent
 
 virtual bling saliva
 dripping on your headset
