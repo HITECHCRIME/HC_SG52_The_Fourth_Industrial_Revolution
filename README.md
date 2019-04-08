@@ -38,8 +38,10 @@ grasp the handles
 
 escape clearly marked as an exit
 how come it's just painted - wait, what the fuck, it's just painted
-black pixel structures on the grid so black
+black 
+pixel structures on the grid so black
 canvas still empty, this cage is electric
 the world seems to be turning
+day will come when analogues start burning
 
 
