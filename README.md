@@ -9,8 +9,7 @@ evolving human factor
 not only the passive functions
 
 never disconnected, part of your presence
-5G network systems 
-(spreading)
+5G network systems (spreading)
 nanosensor data, synthetic aura
 global brain from mobile
 
@@ -39,7 +38,8 @@ grasp the handles
 
 escape clearly marked as an exit
 how come it's just painted - wait, what the fuck, it's just painted
-black pixel structures on the black grid 
+black pixel structures on the grid so black
 canvas still empty, this cage is electric
+the world seems to be turning
 
 
