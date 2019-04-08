@@ -29,10 +29,8 @@ just another texture
 maze of your own making
 
 siren storage
-pattern recognition chains
-of our psyche
-out of moves
-out of window of activity
+pattern recognition chains of our psyche
+out of moves, out of window of activity
 might as well be nonexistent
 
 virtual bling saliva
@@ -40,4 +38,7 @@ dripping on your headset
 grasp the handles
 escape clearly marked as exit
 how come it's just painted
+true symbiotic relation
+black on black 
+canvas still empty
 
