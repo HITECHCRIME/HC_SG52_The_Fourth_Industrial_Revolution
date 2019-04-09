@@ -9,34 +9,48 @@ take for instance
 evolving human factor
 not only the passive functions
 
-never disconnected, part of your presence
-5G network systems (spreading)
-nanosensor data, synthetic aura
-global brain from mobile
+never disconnected
+part of your presence
+5G network systems 
+(spreading)
+nanosensor data
+synthetic aura
+global brain 
+from mobile
 
-synthetic voices, silent at first
-then spreading and self updating
+synthetic voices
+silent at first
+then spreading and 
+self updating
 
 thought algorithm
 true symbiorelation
 tattoo swiped (AI symbiote) 
-auto(nomous) authentication
+autonomous authentication
 lose yourself in the merge
 lose yourself in the merge
 lose yourself in the emerging picture
 be impatient be impatient
+
 just another texture
 maze of your own making
 
 [VERSE 1]
-siren storage, pattern recognition
-chains of our psyche, out of my moves, 
-out of the framework, window of activity nonexistent
+siren storage
+pattern recognition
+chains of our psyche
+out of my moves, 
+out of my framework
+window of activity 
+nonexistent
+
 virtual bling saliva
 dripping on your headset
 jolting, grasp the handles
-such is the thought algorithm 
-escape clearly marked as an exit
+such is the alt process 
+thought algorithm 
+escape clearly marked 
+as an exit
 
 how come it's just painted
 what the fuck, 
@@ -48,9 +62,14 @@ day will come, none of ya will heed it, analogues will start burning
 true symbiotic relation
 programme substitute for morals
 hold on hands now dirty
-intelligence
+intelligence, inner sense of data
+biohacking in the region
+brace your eyes
+brace your mind
+the 4th is coming
+malice with the burning
 
-inner sense of data
+
 
 [HOOK]
 evolving human factor
