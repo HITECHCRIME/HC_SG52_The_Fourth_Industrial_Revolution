@@ -16,6 +16,7 @@ global brain from mobile
 
 synthetic voices, silent at first
 then spreading and self updating
+
 as such is thought algorithm 
 autonomous authentication
 tattoo swiped (AI symbiote) 
