@@ -35,17 +35,17 @@ window of activity nonexistent
 
 virtual bling saliva
 dripping on your headset
-grasp the handles
+jolting, grasp the handles
 
-
-escape marked by exit
-how come it's just painted - what the fuck, 
+escape clearly marked as an exit
+how come it's just painted
+what the fuck, 
 wait hold on hands now dirty
 it's painted black 
 pixel structures on grid so dark
 canvas still empty, this cage is electric
 the world seems to be turning
-day will come, analogues start burning
+day will come, analogues will start burning
 true symbiotic relation
 
 
