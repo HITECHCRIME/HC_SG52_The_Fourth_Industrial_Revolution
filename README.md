@@ -58,15 +58,12 @@ just another texture
 maze of your own making
 
 [VERSE 1]
+hedges so programmed
 
-how come it's just painted
-what the fuck, 
-wait it's painted black 
-pixel structures on grid so dark
-canvas still so empty, this cage is electric
-the world seems to be turning
-day will come, none of ya will heed it, analogues will start burning
+
 true symbiotic relation
+
+
 programme substitute for morals
 hold on hands now dirty
 intelligence, inner sense of data
@@ -75,6 +72,10 @@ brace your eyes
 brace your mind
 the 4th is coming
 malice with the burning
+
+how come it's just painted
+what the fuck, 
+wait it's painted black 
 
 siren storage
 pattern recognition
@@ -91,6 +92,7 @@ such is the alt process
 thought algorithm 
 escape clearly marked 
 as an exit
+
 
 [HOOK]
 evolving human factor
@@ -116,6 +118,18 @@ be impatient be impatient
 just another texture
 maze of your own making
 
+[VERSE2]
+how come it's faint
+can feel the paint
+painted in black
+pixel structures on a grid so dark
+canvas still so empty, cage is electric
+the world seems to be turning
+day will come, none of ya will heed it
+analogues will start fading
+plugged won't see it
+surging for a different reason
+out of wats, blinded yet alive
 
 
 
