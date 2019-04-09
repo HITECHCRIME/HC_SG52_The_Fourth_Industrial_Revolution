@@ -31,14 +31,14 @@ maze of your own making
 [VERSE 1]
 siren storage, pattern recognition
 chains of our psyche
-out of moves, out of the framework
+out of my moves, out of the framework
 activity window nonexistent
 
 virtual bling saliva
 dripping on your headset
 grasp the handles
 
-escape clearly marked as an exit
+escape marked as an exit
 how come it's just painted - what the fuck, wait
 it's painted black 
 pixel structures on grid so dark
