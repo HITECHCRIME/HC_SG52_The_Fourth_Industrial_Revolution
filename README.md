@@ -4,6 +4,27 @@ Hitech Crime Single
 SCARY TRAP BEAT - Scary & Evil Instrumental Rap - UFO (Prod By Data Beats)
 https://www.youtube.com/watch?v=d07SayjuLJk
 
+lies
+i don't think you want this
+unless you want to dash with the machine
+take the key to escape
+
+evolving human factor
+not only the passive functions
+never disconnected
+part of your presence
+5G network systems yeah
+nanosensor data
+synthetic aura
+global brain 
+from mobile
+synthetic voices
+silent at first
+then spreading and 
+self updating
+
+xxx
+
 [HOOK]
 take for instance
 evolving human factor
@@ -27,6 +48,7 @@ thought algorithm
 true symbiorelation
 tattoo swiped (AI symbiote) 
 autonomous authentication
+
 lose yourself in the merge
 lose yourself in the merge
 lose yourself in the emerging picture
@@ -36,21 +58,6 @@ just another texture
 maze of your own making
 
 [VERSE 1]
-siren storage
-pattern recognition
-chains of our psyche
-out of my moves, 
-out of my framework
-window of activity 
-nonexistent
-
-virtual bling saliva
-dripping on your headset
-jolting, grasp the handles
-such is the alt process 
-thought algorithm 
-escape clearly marked 
-as an exit
 
 how come it's just painted
 what the fuck, 
@@ -69,7 +76,21 @@ brace your mind
 the 4th is coming
 malice with the burning
 
+siren storage
+pattern recognition
+chains of our psyche
+out of my moves, 
+out of my framework
+window of activity 
+nonexistent
 
+virtual bling saliva
+dripping on your headset
+jolting, grasp the handles
+such is the alt process 
+thought algorithm 
+escape clearly marked 
+as an exit
 
 [HOOK]
 evolving human factor
