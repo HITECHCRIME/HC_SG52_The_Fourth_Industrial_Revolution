@@ -17,10 +17,10 @@ global brain from mobile
 synthetic voices, silent at first
 then spreading and self updating
 
-authentication
+thought algorithm
+true symbiorelation
 tattoo swiped (AI symbiote) 
-autonomous
-
+auto(nomous) authentication
 lose yourself in the merge
 lose yourself in the merge
 lose yourself in the emerging picture
@@ -44,10 +44,13 @@ wait it's painted black
 pixel structures on grid so dark
 canvas still so empty, this cage is electric
 the world seems to be turning
-day will come, analogues will start burning
+day will come, none of ya will heed it, analogues will start burning
 true symbiotic relation
 programme substitute for morals
 hold on hands now dirty
+intelligence
+
+inner sense of data
 
 [HOOK]
 evolving human factor
