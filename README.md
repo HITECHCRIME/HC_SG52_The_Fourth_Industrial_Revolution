@@ -5,6 +5,7 @@ SCARY TRAP BEAT - Scary & Evil Instrumental Rap - UFO (Prod By Data Beats)
 https://www.youtube.com/watch?v=d07SayjuLJk
 
 [HOOK]
+take for instance
 evolving human factor
 not only the passive functions
 
@@ -15,12 +16,10 @@ global brain from mobile
 
 synthetic voices, silent at first
 then spreading and self updating
-
 as such is thought algorithm 
-true symbiotic relation
+autonomous authentication
+tattoo swiped (AI symbiote) 
 
-tattoo swiped, autonomous 
-authentication (AI symbiote) 
 lose yourself in the merge
 lose yourself in the merge
 lose yourself in the emerging picture
@@ -37,6 +36,8 @@ window of activity nonexistent
 virtual bling saliva
 dripping on your headset
 grasp the handles
+
+
 escape marked by exit
 how come it's just painted - what the fuck, 
 wait hold on hands now dirty
@@ -45,6 +46,7 @@ pixel structures on grid so dark
 canvas still empty, this cage is electric
 the world seems to be turning
 day will come, analogues start burning
+true symbiotic relation
 
 
 [HOOK]
