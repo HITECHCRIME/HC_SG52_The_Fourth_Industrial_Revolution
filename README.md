@@ -9,11 +9,9 @@ i don't think you want this
 unless you want to dash with the machine
 take the key to escape
 
-evolving human factor
-not only the passive functions
 never disconnected
 part of your presence
-5G network systems yeah
+5G network systems
 nanosensor data
 synthetic aura
 global brain 
@@ -58,16 +56,11 @@ just another texture
 maze of your own making
 
 [VERSE 1]
-hedges so programmed
-
-
-true symbiotic relation
-
-
-programme substitute for morals
-hold on hands now dirty
+hedges so programmed i can see
+substitute for morals
 intelligence, inner sense of data
 biohacking in the region
+hold on hands now dirty
 brace your eyes
 brace your mind
 the 4th is coming
@@ -89,7 +82,7 @@ virtual bling saliva
 dripping on your headset
 jolting, grasp the handles
 such is the alt process 
-thought algorithm 
+extinction with
 escape clearly marked 
 as an exit
 
