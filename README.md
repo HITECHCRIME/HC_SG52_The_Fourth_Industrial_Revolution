@@ -32,19 +32,19 @@ maze of your own making
 siren storage, pattern recognition
 chains of our psyche
 out of my moves, out of the framework
-activity window nonexistent
+window of activity nonexistent
 
 virtual bling saliva
 dripping on your headset
 grasp the handles
-
-escape marked as an exit
-how come it's just painted - what the fuck, wait
+escape marked by exit
+how come it's just painted - what the fuck, 
+wait hold on hands now dirty
 it's painted black 
 pixel structures on grid so dark
 canvas still empty, this cage is electric
 the world seems to be turning
-day will come when analogues start burning
+day will come, analogues start burning
 
 
 [HOOK]
