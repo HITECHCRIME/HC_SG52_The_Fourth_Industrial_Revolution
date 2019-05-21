@@ -4,6 +4,10 @@ Hitech Crime Single
 SCARY TRAP BEAT - Scary & Evil Instrumental Rap - UFO (Prod By Data Beats)
 https://www.youtube.com/watch?v=d07SayjuLJk
 
+## Lyrics
+
+```
+
 lies
 i don't think you want this
 unless you want to dash with the machine
@@ -116,6 +120,8 @@ analogues will start fading
 plugged won't see it
 surging for a different reason
 out of wats, blinded yet alive
+
+```
 
 
 
