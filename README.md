@@ -24,42 +24,44 @@ self updating
 xxx
 
 [HOOK]
-take for instance
-evolving human factor
-not only the passive functions
+take for instance (?)
 
-never disconnected
-part of your presence
+Evolving human factor
+Not only the passive functions
+
+Never disconnected
+Part of your presence
 5G network systems 
-(spreading)
-nanosensor data
-synthetic aura
-global brain 
-from mobile
+spreading)
 
-synthetic voices
-silent at first
-then spreading and 
-self updating
+Nanosensor data
+Synthetic aura
+Global brain 
+From mobile
 
-thought algorithm
-true symbiorelation
-tattoo swiped (AI symbiote) 
-autonomous authentication
+Synthetic voices
+Silent at first
+Then spreading and 
+Self updating
 
-lose yourself in the merge
-lose yourself in the merge
-lose yourself in the emerging picture
-be impatient be impatient
+Thought algorithm
+True symbiorelation
+Tattoo swiped (AI symbiote) 
+Autonomous authentication
 
-just another texture
-maze of your own making
+Lose yourself in the merge
+Lose yourself in the merge
+Lose yourself in the emerging picture
+Be impatient be impatient
+
+Just another texture (?)
+Maze of your own making (?)
 
 [VERSE 1]
 hedges so programmed i can see
 substitute for morals
-intelligence, inner sense of data
-biohacking in the region
+inner sense of data
+intelligence biohacking in the region
 hold on hands now dirty
 brace your eyes
 brace your mind
@@ -70,22 +72,13 @@ how come it's just painted
 what the fuck, 
 wait it's painted black 
 
-siren storage
-pattern recognition
-chains of our psyche
-out of my moves, 
-out of my framework
-window of activity 
-nonexistent
-
-virtual bling saliva
-dripping on your headset
-jolting, grasp the handles
-such is the alt process 
-extinction with
-escape clearly marked 
-as an exit
-
+Siren storage, pattern recognition
+Chains of our psyche, out of my moves, 
+Out of my framework, window of activity 
+Nonexistent, virtual bling saliva, 
+Dripping on your headset, jolting, grasp the handles
+Such is the altered extinction process 
+Escape clearly marked as an exit
 
 [HOOK]
 evolving human factor
