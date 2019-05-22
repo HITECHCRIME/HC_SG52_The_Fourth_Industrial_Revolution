@@ -28,40 +28,23 @@ self updating
 xxx
 
 [HOOK]
-take for instance (?)
-
-Evolving human factor
-Not only the passive functions
-
-Never disconnected
-Part of your presence
-5G network systems 
-spreading)
-
-Nanosensor data
-Synthetic aura
-Global brain 
-From mobile
-
-Synthetic voices
-Silent at first
-Then spreading and 
-Self updating
-
-Thought algorithm
-True symbiorelation
-Tattoo swiped (AI symbiote) 
-Autonomous authentication
-
-Lose yourself in the merge
-Lose yourself in the merge
-Lose yourself in the emerging picture
-Be impatient be impatient
-
-Just another texture (?)
-Maze of your own making (?)
+take for instance evolving human factor not only the passive functions
+never disconnected, part of your presence, 5G network systems spreading
+nanosensor data, synthetic aura, global brain from mobile
+synthetic voices, silent at first then spreading and self updating
+thought algorithm, true symbiorelation tattoo swiped - autonomous authentication (AI symbiote)
+lose yourself in the merge, lose yourself in the merge, lose yourself in the emerging picture
+be impatient be impatient, just another texture, maze of your own making
 
 [VERSE 1]
+pixel structures on a grid so dark
+canvas still so empty, cage is electric
+the world seems to be turning
+day will come, none of ya will heed it
+analogues will start fading
+plugged won't see it
+surging for a different reason
+out of wats, blinded yet alive
 hedges so programmed i can see
 substitute for morals
 inner sense of data
@@ -72,9 +55,7 @@ brace your mind
 the 4th is coming
 malice with the burning
 
-how come it's just painted
-what the fuck, 
-wait it's painted black 
+
 
 Siren storage, pattern recognition
 Chains of our psyche, out of my moves, 
@@ -112,15 +93,10 @@ maze of your own making
 how come it's faint
 can feel the paint
 painted in black
-pixel structures on a grid so dark
-canvas still so empty, cage is electric
-the world seems to be turning
-day will come, none of ya will heed it
-analogues will start fading
-plugged won't see it
-surging for a different reason
-out of wats, blinded yet alive
 
+how come it's just painted
+what the fuck, 
+wait it's painted black 
 ```
 
 
