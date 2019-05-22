@@ -28,13 +28,21 @@ self updating
 xxx
 
 [HOOK]
-take for instance evolving human factor not only the passive functions
-never disconnected, part of your presence, 5G network systems spreading
-nanosensor data, synthetic aura, global brain from mobile
-synthetic voices, silent at first then spreading and self updating
-thought algorithm, true symbiorelation tattoo swiped - autonomous authentication (AI symbiote)
-lose yourself in the merge, lose yourself in the merge, lose yourself in the emerging picture
-be impatient be impatient, just another texture, maze of your own making
+take for instance evolving human factor 
+not only the passive functions
+never disconnected, part of your presence
+5G network systems spreading
+nanosensor data, synthetic aura
+global brain from mobile
+synthetic voices, silent at first 
+then spreading and self updating
+thought algorithm, true symbiorelation 
+tattoo swiped - autonomous authentication (AI symbiote)
+lose yourself in the merge
+lose yourself in the merge
+lose yourself in the emerging picture
+be impatient be impatient, just another texture 
+maze of your own making
 
 [VERSE 1]
 pixel structures on a grid so dark
@@ -46,7 +54,7 @@ plugged won't see it
 surging for a different reason
 out of wats, blinded yet alive
 hedges so programmed i can see
-substitute for morals
+substitute for morals die
 inner sense of data
 intelligence biohacking in the region
 hold on hands now dirty
@@ -55,15 +63,13 @@ brace your mind
 the 4th is coming
 malice with the burning
 
-
-
-Siren storage, pattern recognition
-Chains of our psyche, out of my moves, 
-Out of my framework, window of activity 
-Nonexistent, virtual bling saliva, 
-Dripping on your headset, jolting, grasp the handles
-Such is the altered extinction process 
-Escape clearly marked as an exit
+siren storage, pattern recognition
+chains of our psyche, out of my moves, 
+out of my framework, window of activity 
+nonexistent, virtual bling saliva, 
+dripping on your headset, jolting, grasp the handles
+such is the altered extinction process 
+escape clearly marked as an exit
 
 [HOOK]
 evolving human factor
