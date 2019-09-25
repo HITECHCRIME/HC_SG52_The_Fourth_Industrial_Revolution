@@ -107,6 +107,5 @@ wait it's painted black
 
 # Notes
 
-Ted Kaczyński theme. Tech systems in ruin. Book: 
-
+Ted Kaczyński theme. Tech systems in ruin. Book: "Industrial Society and Its Future\" by Ted Kaczynski
 
