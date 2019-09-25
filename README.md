@@ -105,5 +105,8 @@ what the fuck,
 wait it's painted black 
 ```
 
+# Notes
+
+Ted Kaczyński theme. Tech systems in ruin. Book: 
 
 
